@@ -1,3 +1,4 @@
+![capivarinha](https://user-images.githubusercontent.com/88913575/192052116-b4ebefbc-5258-4d14-a544-3ef0831b9d1e.jpeg)
 ### Hi there 👋
 
 <!--
